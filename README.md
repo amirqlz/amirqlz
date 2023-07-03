@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @amirqlz
-- 👀 I’m interested in we dveloping 
+- 👀 I’m interested in 
 - 🌱 I’m currently learning it
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
